@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @itsutkarshkr
 - 👀 I’m interested in ... programing 
-- 🌱 I’m currently exploring ... web 3 and blockchain
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... its.utkarsh_kumar (my instagram)
 - 😄 Pronouns: ... 
